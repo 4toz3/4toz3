@@ -8,7 +8,7 @@ about ,,
 
 - I'm mostly known as Ze / Wall
 
-- im a Ze fictkin so i'd be more than happy to be called Ze !!
+- im a Ze fictionkin so i'd be more than happy to be called Ze !!
 
 - i use he/they/xe , he xe preferred but i'd love if you alternate between these pronouns
 
