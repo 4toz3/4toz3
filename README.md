@@ -24,6 +24,8 @@
 <div align="center">⠀
 <div align="center"> • I'm known as Ze / Zach / Harvey
 <div align="center">⠀
+<div align="center"> • my other names are ; Silent n Dashy
+<div align="center">⠀
 <div align="center"> • im a Ze fictionkin so i'd be more than happy to be called Ze !!
 <div align="center">  ( + Zach i love that name. feel free to alternate between those)
 <div align="center">⠀
