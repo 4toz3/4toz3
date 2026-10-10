@@ -22,12 +22,12 @@
 <div align="center"> <img src="https://github.com/user-attachments/assets/3ade1be4-bea1-4b3c-9582-665a322c90d0" width="120%">
 <div align="center">⠀
 <div align="center">⠀
-<div align="center"> • I'm known as Ze / Zach / Harvey
+<div align="center"> • I'm known as Ze / Zach / Harvey / Mason
 <div align="center">⠀
-<div align="center"> • my other names are ; Silent n Dashy
+<div align="center"> • my other names are ; Silent n Dashie
 <div align="center">⠀
 <div align="center"> • im a Ze fictionkin so i'd be more than happy to be called Ze !!
-<div align="center">  ( + Zach i love that name. feel free to alternate between those)
+<div align="center">  ( + Zach i love that name. feel free to alternate between my names!)
 <div align="center">⠀
 <div align="center"> • i use he/xe , xe preferred
 <div align="center">⠀
